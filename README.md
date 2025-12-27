@@ -7,5 +7,4 @@
 
 
 ## "ᴛᴏɢᴇᴛʜᴇʀ, ᴡᴇ ꜱʜᴀʟʟ ᴡʀɪᴛᴇ ᴛʜᴇ ᴇɴᴅ ᴛᴏ ᴛʜɪꜱ ᴡʀᴇᴛᴄʜᴇᴅ ꜰᴀɪʀʏᴛᴀʟᴇ. ɪɴ ɪɴᴋ, ʙʟᴀᴄᴋ ᴀꜱ ᴅᴇꜱᴘᴀɪʀ."
-<img width="750" height="988" alt="imagem_2025-12-27_155543211" src="https://github.com/user-attachments/assets/84342fa0-b745-4685-a01b-4faaa41337d8" />
-
+<img width="750" height="578" alt="imagem_2025-12-27_164608463" src="https://github.com/user-attachments/assets/f7b99241-b321-4abd-9191-13405a862c35" />
