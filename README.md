@@ -1,13 +1,11 @@
 ## ˗ˏˋ ꒰ hiii .ᐟ.ᐟ ꒱ ˎˊ˗
  ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
--  you can find me somewhere near spawn, hoyo or mha area
--  come cuddle with me i dont bite!
--  literally the most awkward person ever (sorry in advance but i promise i'm nice)
--  working on strawpage
-<p align="center">
-<img width="1251" height="930" alt="tumblr_52cd70424d622b42d3dad7e55e6deb4a_53faec56_1280 (2)" src="https://github.com/user-attachments/assets/5679ebe2-c260-4212-ab12-a18de9fdf068" />
- > cr: @azraneir on tumblr for the amazing fanart <3 < 
-                                                        
+-  mostly in the hoyo area or near spawn
+-  i dont normally int first since im iterally the most awkward person ever (sorry in advance but i promise i'm nice)
+-  reworking a strawpage
+<p align="center"> 
+ <img width="698" height="357" alt="imagem_2026-01-19_152310866-removebg-preview" src="https://github.com/user-attachments/assets/fc71e694-ab89-433e-a6d2-71057a7fbf5f" />                                                
+ 
  ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
