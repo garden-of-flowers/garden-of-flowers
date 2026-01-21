@@ -2,6 +2,7 @@
  ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 -  mostly in the hoyo area or near spawn
 -  i dont normally int first since im iterally the most awkward person ever (sorry in advance but i promise i'm nice)
+-  i dont like talkting much sometimes ^^" i'm content just sitting in-game while doing other stuff but i have no problem if you want to talk instead!
 
 <p align="center"> 
  <img width="698" height="357" alt="imagem_2026-01-19_152310866-removebg-preview" src="https://github.com/user-attachments/assets/fc71e694-ab89-433e-a6d2-71057a7fbf5f" />                                                
