@@ -2,7 +2,7 @@
  ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 -  mostly in the hoyo area or near spawn
 -  i dont normally int first since im iterally the most awkward person ever (sorry in advance but i promise i'm nice)
--  reworking a strawpage
+
 <p align="center"> 
  <img width="698" height="357" alt="imagem_2026-01-19_152310866-removebg-preview" src="https://github.com/user-attachments/assets/fc71e694-ab89-433e-a6d2-71057a7fbf5f" />                                                
  
