@@ -2,6 +2,7 @@
  ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 -  mostly in the hoyo area or near spawn
 -  i dont normally int first since im iterally the most awkward person ever (sorry in advance but i promise i'm nice)
+-  dont be shy to sit next to me or cuddle! i love cuds ^^
 -  i dont like talking much sometimes ^^" i'm content just sitting in-game while doing other stuff but i have no problem if you want to chat!
 
 <p align="center"> 
